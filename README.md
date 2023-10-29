@@ -1,1 +1,1 @@
-# Spokhreli.github.io
+# Spokhrel.github.io
